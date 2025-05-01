@@ -1,2 +1,2 @@
 # csf
-noob hacker
+NOOB HACKER
